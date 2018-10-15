@@ -1,7 +1,5 @@
-### Chocolate Chip Cookies
+### Shrimp Alfredo
 
-Ingredients: chocolate chips
-
-#### How to Cook:
-1. Put in oven.
-2. Wait
+1 Jar Alfredo Sauce
+1 Box of your favorite Pasta
+Lots of Shrimp
