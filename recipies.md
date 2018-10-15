@@ -2,4 +2,6 @@
 
 Ingredients: chocolate chips
 
-How to Cook: Put in oven.
+#### How to Cook:
+1. Put in oven.
+2. Wait
